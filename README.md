@@ -1,0 +1,1 @@
+# Stay-on-the-same-page-while-add-any-product-to-cart
